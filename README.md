@@ -62,7 +62,7 @@ No signup. No ads. Just results.
 
 ---
 
-## 📈 SEO Keywords (for discoverability)
+## 📈 SEO Keywords 
 
 keyboard test online, typing speed test, keys test, keyboard tester, check keyboard keys, typing test tool, free keyboard test, online typing speed checker
 
